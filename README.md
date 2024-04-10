@@ -1,2 +1,6 @@
 # _**Feather Blogs**_
-## welcome to feather blogs.com 
+## welcome to feather blogs.com where magic is in everything! 
+BENIFITS OF USING MY WEBSITE:
+- you get to see my blog videos
+- youcan read my experiences
+- you can read my reccomendations and go to reccomended places or do reccomended things
