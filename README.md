@@ -8,7 +8,8 @@
  
   _So... I was reading my science encyclopedia when suddenly I read somthing which said
   "**Want To Have A Pet Snail?!?** After reading that I had an intresting idea why dont
-  **I** keep a pet snail_
+  **I** keep a pet snail?_
+ 
   **_TO BE CONTINUED..._**
   
  
