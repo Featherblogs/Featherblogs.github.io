@@ -1,7 +1,7 @@
 # _**Featherblogs**_
 ### dear friends, 
   this is my website where you can view my blogs👀 or read my experiences🌿.
-  I kindly welcome you to"Featherblogs.com"😊
+  I kindly welcome you to :[Featherblogs.com](https://featherblogs.github.io/)😊
    **now I will share with you my very first weird or intresting idea!👇**
  
  **_blog#1 (10/4/2024 -TIME: 8:49_)**
